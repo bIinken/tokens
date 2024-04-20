@@ -14,4 +14,4 @@ I did not. I helped you by making it invalid so people that do the same thing as
 I keep that private as to not guide malicious people into doing the same
 
 # Got more questions?
-Reach me at bIinken@proton.me or "ovhing" on cord.
+Reach me at bIinken@proton.me or "ovhing" on discord.
